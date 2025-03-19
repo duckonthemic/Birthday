@@ -1,1 +1,1 @@
-Just for mom birthday
+Just for birthday
